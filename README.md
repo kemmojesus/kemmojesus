@@ -9,6 +9,7 @@
 - 📫 How to reach me
 - you can through my mail kemmojesus@gmail.com
 - or put a call through to 070 3769 0606
+- I'm also here on LinkedIn ..https://ng.linkedin.com/in/oluwakemi-abosede-3156821b1
 - 😄 Pronouns:She/Her 
 - ⚡ Fun fact: making an event beautiful and memorable
 
